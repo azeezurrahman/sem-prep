@@ -1,2 +1,6 @@
 # sem-prep
-tryin to learn this idiotic website github for semester
+foss lab is amazing.
+it is marvellous.
+excellent
+rocking lab.
+i really love foss lab.
